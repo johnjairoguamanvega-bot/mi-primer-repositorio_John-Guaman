@@ -1,1 +1,1 @@
-# mi-primer-repositorio_JohnGuaman
+# mi-primer-repositorio_John-Guaman
